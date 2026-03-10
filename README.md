@@ -5,7 +5,4 @@ If this helps even if just one person out there, it was all worth it.
 
 Cheers and Happy Documenting! 
 
-
-Remember, you don't have to choose a side... just, be human. You always have a choice. 
-
-Love to all.
+Don't choose sides. Choose humanity. There's always an option — even when it's hard to see or seems hopeless. Love first. Everything else second.
